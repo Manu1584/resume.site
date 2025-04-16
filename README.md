@@ -26,5 +26,5 @@ It's also a digital version of my resume that I can easily share.
 
 ## 👤 Author
 
-**MAndY**
+**MANDY**
 
